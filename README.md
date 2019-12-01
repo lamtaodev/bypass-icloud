@@ -5,7 +5,7 @@ big credits to Checkra1n
 
 ___________________________________
 
-![Imgur Image](https://imgur.com/ltbypassicloud.jpg)
+![Imgur Image](https://imgur.com/IfiZHknl.png)
 ___________________________________
 
 if you dont have checkra1n
